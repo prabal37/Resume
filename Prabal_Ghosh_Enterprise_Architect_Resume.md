@@ -2,7 +2,7 @@
 # PRABAL GHOSH
 **Enterprise Architect – Payments & Cloud Transformation**  
 Bangalore, India | +91‑98749XXXXX | prabalghosh1@gmail.com  
-LinkedIn: <placeholder> | GitHub / Portfolio: <placeholder>
+LinkedIn: (https://www.linkedin.com/in/prabal-ghosh-88041213/) | GitHub / Portfolio: <placeholder>
 
 ---
 
